@@ -1,0 +1,1 @@
+"FEAR. Omar has risen"
